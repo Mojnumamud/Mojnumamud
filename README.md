@@ -1,4 +1,4 @@
-### Hello every one 👌 I'm Mojnu mamud.
+### I'm Mojnu mamud.
 
 <!--
 **Mojnumamud/Mojnumamud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
