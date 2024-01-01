@@ -1,4 +1,4 @@
-### Hi there 👋, Mojnu mamud
+### Mojnu mamud
 #### Web Developer
 ![Web Developer](https://www.facebook.com/photo/?fbid=7038655856254912&set=a.279355182185047&__cft__[0]=AZVIH810FLra_xlWC4RbBL0f4qH3ThgF1mEieMEGVblXc9htTXdFL5K7p1ZkjNxFjzdNI9luRXh9WfW4R74CjYE7kECG0haYM40a2Yq02TRtfmMAZmiaIcA4XuKbWNj5Nst5IjlF6uJLp7Yc3Q0kz3ZSR9rDYV8vr33a6x0g1qI5hA&__tn__=EH-R)
 
